@@ -1,4 +1,4 @@
-# Edited Guidelines From Israel's Home Front Command (Pikud HaOred)
+# Edited Rocket Alert Preparedness Guidelines From Israel's Home Front Command (Pikud HaOref)
 
 *Update: 08-08-24*
 
